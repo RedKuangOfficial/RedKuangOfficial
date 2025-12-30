@@ -1,4 +1,5 @@
 - 👋 Hi, I’m @RedKuang 
+- Indie game developer
 - 📫 How to reach me redkuangofficial@gmail.com
 
 
